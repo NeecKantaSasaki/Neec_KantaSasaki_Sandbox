@@ -1,1 +1,0 @@
-# Neec_MakotoTakanashi
